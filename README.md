@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @mattboii29
+- 👀 I’m interested in building my ideas
+- 🌱 I’m currently learning to code for my projects
